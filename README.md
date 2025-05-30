@@ -1,4 +1,4 @@
-# salve gurizado e o Emanoel.
+# salve gurizada e o Emanoel.
 -Opa, eu sou o guri nascida pra mudar o mundo
 
 -sou bom com esportes
