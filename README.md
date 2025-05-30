@@ -5,6 +5,8 @@
 
 -sou moreno e gostoso
 
+-Nascido da gaviões da fiel!!!
+
 -inteligente e um leitor apaixonado
 
 -sei apreciar a verdadeira arte tanto musical, quanto cultural
