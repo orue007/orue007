@@ -1,4 +1,4 @@
-# falaa menzinhooo !
+# salve gurizado e o Emanoel.
 -Opa, eu sou o guri nascida pra mudar o mundo
 
 -sou bom com esportes
