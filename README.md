@@ -7,7 +7,7 @@
 
 -inteligente e um leitor apaixonado
 
--sei apreciar a verdadeira arte tanto, musical quanto cultural
+-sei apreciar a verdadeira arte tanto musical, quanto cultural
 
 # Enfim um livros cheio de anedotas 
 
